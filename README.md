@@ -1,4 +1,4 @@
-# Hallo👋 , Nama Saya Ramadhani || LANDAK 🦔!
+# Hallo👋 , Nama Saya puki || crotahh!
 
 # Umur saya 19 tahun, Asal Jakarta.
 
